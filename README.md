@@ -1,6 +1,5 @@
 # Hi there 👋
 
-**HSamuelV/HSamuelV** is a ✨ _special_ ✨ repository because its
 
 - I’m currently a Mechatronic Engineering Student 
  
