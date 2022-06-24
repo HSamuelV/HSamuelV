@@ -8,6 +8,4 @@
  
 - LinkedIn: [LinkedIn](https://www.linkedin.com/in/hugo-samuel-victor-santos/)
 
-- 
-
 - Wechat: 
